@@ -2,6 +2,8 @@
 
 https://www.coursehero.com/file/98029591/Homework-2-Fyrdrianpdf/
 
+https://drive.google.com/file/d/0B7OmNithn8yCOGNuSzhmaDBfdDQ/view?resourcekey=0-8RzAPePxvjcUpWCCDdpcPg
+
 https://www.youtube.com/@CarnieSyntaxthEdition/playlists
 
 https://docs.google.com/forms/d/e/1FAIpQLSeLrBHrr3_5X9BpsJ19op18O6OgpeB_3pimi9O8L33ZwHn2Rg/viewscore?vc=0&c=0&w=1&flr=0&viewscore=AE0zAgB7z7o8VXlTZlU76vfoiJ5MxfvrjGzxGM-FCM_sJDJQ-kpLs_dUzoCaejqiONkQraM
